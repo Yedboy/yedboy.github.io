@@ -1,2 +1,2 @@
-# coming soon
-i feel like i should work on this
+# MY RANDOM AS FUCK WEBSITE
+wip
